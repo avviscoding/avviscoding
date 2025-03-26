@@ -1,6 +1,6 @@
 👋 @avviscoding — Espresso in my veins, bugs beware.
 
-👀 Crafting powerful software, mastering Python & Flutter.
+👀 Crafting powerful software.
 
 💞️ Only building impactful projects.
 
