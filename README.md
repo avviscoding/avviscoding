@@ -4,6 +4,6 @@
 
 💞️ Only building impactful projects.
 
-📫 Reach me: bluecodesinside@gmail.com
+📫 Reach me: havabullari47@gmail.com
 
 
